@@ -15,5 +15,4 @@ I would much appreciate an **opportunity** to work on some **good tool** or **fr
 I am opened to new challenges and ready to change the world.
 
 Kind regards,
-
 ### Maks.
